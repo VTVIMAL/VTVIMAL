@@ -5,4 +5,4 @@
 - Huge tech💻📱 entusiast with a growing interest in Data Science and AI.
 - Love games 🎮, game development and character design.
 - Enjoys anime🤩, manga📖 and other creative contents.
-- Always eger to learn new things.
+- Always eager to learn new things.
